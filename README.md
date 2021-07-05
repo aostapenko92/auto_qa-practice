@@ -1,0 +1,1 @@
+# aostapenko92-auto_qa-practice
